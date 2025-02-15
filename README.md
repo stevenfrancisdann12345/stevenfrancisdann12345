@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @stevenfrancisdann12345
-- 👀 I’m interested in ...stuf
-- 🌱 I’m currently learning ...stuf
-- 💞️ I’m looking to collaborate on ...stuf
+- 👀 I’m interested in ...stuff
+- 🌱 I’m currently learning ...stuff
+- 💞️ I’m looking to collaborate on ...stuff
 - 📫 How to reach me ...stevenfrancisdann12345@gmail.com
 - 😄 Pronouns: ...he;him;his
 - ⚡ Fun fact: ...Salmon use the earths magnetic field to navigate!
